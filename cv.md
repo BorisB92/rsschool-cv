@@ -2,6 +2,7 @@
 
 ## *Contact information*
 _mail: 8529572@gmail.com_
+
 _discord: @BorisB92
 
 ## Brief information about yourself:
