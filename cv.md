@@ -21,7 +21,8 @@ Missing
 ## Education:
 
 *1. Bachelor's degree in the specialty "Agricultural Mechanic".*
-*2. Образование бакалавра по специальности "Промышленное и гражданское строительство"*
+*2. Bachelor's degree in the specialty "Industrial and civil engineering"*
+
 
 ## English language
 English level A0. Translate to google
